@@ -138,6 +138,7 @@ THE HEDONIC TREADMILL: THE NEVER-ENDING CHASE FOR MORE
  Hi kids, 
 
 Today we're going to talk about something called the "hedonic treadmill." I know, it sounds like some fancy exercise equipment, but trust me, it's way more interesting (and way less sweaty)! ;)
+
 <br>
 
 WHAT'S THIS TREADMILL ALL ABOUT?
@@ -145,6 +146,7 @@ WHAT'S THIS TREADMILL ALL ABOUT?
 Imagine you just got the new shoes you've been begging for. You're over the moon excited, right? But after a few weeks, it doesn't feel as thrilling anymore. You're back to your usual level of happiness. That, my dear kiddos, is the hedonic treadmill in action.
 
 The hedonic treadmill is this tricky thing our brains do. When something good happens, we get a boost of happiness. But over time, we get used to it, and that happiness fades back to our normal level. Even worse, getting the same thing again won't bring as much joy as the first time.  
+
 <br>
 
 WHY SHOULD YOU CARE?
@@ -153,6 +155,7 @@ Here's the deal: understanding the hedonic treadmill can save you a lot of disap
 Instead, we often find ourselves wanting more, better, bigger. The new Lego figure? Cool for a while, but then you start eyeing the ice cream truck. After that it has to be a whole farm. Bigger, better, more!   
 
 This constant chase can leave you feeling unsatisfied and maybe even a bit unhappy. If you're always focused on the next big thing, you might miss out on enjoying what you have right now.
+
 <br>
  
 BREAKING FREE FROM THE TREADMILL
@@ -166,6 +169,7 @@ So, are we doomed to always chase the next big thing? Nope! Here are some tricks
 3. Set goals: Working towards something gives you a sense of purpose and achievement. It's not just about the end result, but the journey too.
 
 4. Help others: Doing something kind for someone else can give you a happiness boost that lasts longer than buying something for yourself.
+   
 <br>
 
 THE PLOT TWIST
@@ -173,6 +177,7 @@ THE PLOT TWIST
 Here's the funny thing about the hedonic treadmill: it works both ways. Just like we get used to good things, we also adapt to not-so-great situations. Remember that time you thought you'd never get over losing your favorite toy? But you did, right?
 
 This is actually pretty cool because it means that even when life throws you a curveball, you have an amazing ability to bounce back. Your baseline happiness is more resilient than you might think!  
+
 <br>
 
 WHY IT MATTERS
@@ -182,7 +187,9 @@ Understanding the hedonic treadmill isn't about giving up on wanting things or h
 So next time you're tempted to think, "I'll be happy when..." remember the hedonic treadmill. True happiness isn't about running faster to get the next thing. It's about learning to enjoy the journey, wherever you are on the path. 
 
 Love, Dad
+
 <br>
+
   PS: Ok, ok… I’ll confess, the rule of the Hedonic Treadmill doesn’t apply to all things. There is one thing that for me still feels as good as the first time and that is: a hug from you. True story! ;)
 
 
