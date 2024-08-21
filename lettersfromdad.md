@@ -1,4 +1,4 @@
-![Header](Logo.png)
+![Header](Logo_small.png)
 
 Hi kids, 
 
