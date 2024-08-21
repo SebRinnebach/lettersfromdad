@@ -53,6 +53,7 @@ Today I am going to write about “What Do You Really Want? (No, Really!)”. �
 But trust me, sometimes it’s easy and sometimes it is trickier to find out what you really want. No, really! ;)
 
 Let me explain:  
+
 <br>
 
 THE WORLD AND YOU
@@ -60,6 +61,7 @@ THE WORLD AND YOU
 Here's the thing: we're all influenced by the world around us. Your friends, family, social media, even those sneaky ads – they're all telling you what you should want. Sometimes that makes us try to be all things to all people. But are those things really what you want? 
 
 Let's play a little game: Think about something you really want right now. Got it? Okay, now ask yourself: "Why do I want this?" Keep asking "Why?" until you can't go any further. You might be surprised where you end up!  
+
 <br>
 
 PEELING BACK THE LAYERS
@@ -68,6 +70,7 @@ Sometimes, what we think we want is just the wrapping paper. We need to tear it 
 For example: You might say, "I want to be rich!" But why? "So I can buy whatever I want." Okay, but why? "So I need not to worry about money." Ah, now we're getting somewhere! 
 
 See what happened? You started with "being rich" but ended up at “not needing to worry”. Those are the real desires hiding underneath. All it took is asking “why” a couple of times.  
+
 <br>
 
 BEING TRUE TO YOU
@@ -79,6 +82,7 @@ Imagine this: Your friends are all super excited about joining the hockey team. 
 It takes guts to say, "Actually, I think I want to try something different." But that's what being true to yourself is all about. It's about listening to that little voice inside you, even when it's saying something unexpected.   To stand out due to wanting something different can be hard sometimes. But remember to be “outstanding” can be something good as well!
 
 Generally, there's no "right" or "wrong" when it comes to what you want. The only mistake is pretending to want something just because you think that's what you're supposed to want.  
+
 <br>
 
 HOW TO FIGURE IT OUT 
@@ -93,7 +97,8 @@ So, how do you uncover your true desires? Here are some tricks:
 
 4. Think about your dreams when you were little. Sometimes our younger selves knew what we really wanted before the world told us otherwise.
 
-5. And maybe most importantly: Try new things! You might discover desires you never knew you had.  
+5. And maybe most importantly: Try new things! You might discover desires you never knew you had.
+   
 <br>
 
 WHY IT MATTERS 
@@ -108,7 +113,10 @@ What do YOU want? Not what you think you should want, or what others want for yo
 It might take some soul-searching, but I promise it's worth it. After all, it's your life – shouldn't you be the one deciding what you want from it? 
 
 Love, Dad 
+
 <br>
+
+
 P.S. If you figure out what you really want is a pet dragon, let me know. We might need to have another talk about reality vs. fantasy! ;)
 
 
