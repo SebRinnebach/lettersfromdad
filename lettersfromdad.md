@@ -53,14 +53,14 @@ Today I am going to write about “What Do You Really Want? (No, Really!)”. �
 But trust me, sometimes it’s easy and sometimes it is trickier to find out what you really want. No, really! ;)
 
 Let me explain:  
-
+<br>
 
 THE WORLD AND YOU
 
 Here's the thing: we're all influenced by the world around us. Your friends, family, social media, even those sneaky ads – they're all telling you what you should want. Sometimes that makes us try to be all things to all people. But are those things really what you want? 
 
 Let's play a little game: Think about something you really want right now. Got it? Okay, now ask yourself: "Why do I want this?" Keep asking "Why?" until you can't go any further. You might be surprised where you end up!  
-
+<br>
 
 PEELING BACK THE LAYERS
 
@@ -68,7 +68,7 @@ Sometimes, what we think we want is just the wrapping paper. We need to tear it 
 For example: You might say, "I want to be rich!" But why? "So I can buy whatever I want." Okay, but why? "So I need not to worry about money." Ah, now we're getting somewhere! 
 
 See what happened? You started with "being rich" but ended up at “not needing to worry”. Those are the real desires hiding underneath. All it took is asking “why” a couple of times.  
-
+<br>
 
 BEING TRUE TO YOU
 
@@ -79,7 +79,7 @@ Imagine this: Your friends are all super excited about joining the hockey team. 
 It takes guts to say, "Actually, I think I want to try something different." But that's what being true to yourself is all about. It's about listening to that little voice inside you, even when it's saying something unexpected.   To stand out due to wanting something different can be hard sometimes. But remember to be “outstanding” can be something good as well!
 
 Generally, there's no "right" or "wrong" when it comes to what you want. The only mistake is pretending to want something just because you think that's what you're supposed to want.  
-
+<br>
 
 HOW TO FIGURE IT OUT 
 
@@ -94,7 +94,7 @@ So, how do you uncover your true desires? Here are some tricks:
 4. Think about your dreams when you were little. Sometimes our younger selves knew what we really wanted before the world told us otherwise.
 
 5. And maybe most importantly: Try new things! You might discover desires you never knew you had.  
-
+<br>
 
 WHY IT MATTERS 
 
@@ -108,7 +108,7 @@ What do YOU want? Not what you think you should want, or what others want for yo
 It might take some soul-searching, but I promise it's worth it. After all, it's your life – shouldn't you be the one deciding what you want from it? 
 
 Love, Dad 
-
+<br>
 P.S. If you figure out what you really want is a pet dragon, let me know. We might need to have another talk about reality vs. fantasy! ;)
 
 
@@ -130,14 +130,14 @@ THE HEDONIC TREADMILL: THE NEVER-ENDING CHASE FOR MORE
  Hi kids, 
 
 Today we're going to talk about something called the "hedonic treadmill." I know, it sounds like some fancy exercise equipment, but trust me, it's way more interesting (and way less sweaty)! ;)
-
+<br>
 
 WHAT'S THIS TREADMILL ALL ABOUT?
 
 Imagine you just got the new shoes you've been begging for. You're over the moon excited, right? But after a few weeks, it doesn't feel as thrilling anymore. You're back to your usual level of happiness. That, my dear kiddos, is the hedonic treadmill in action.
 
 The hedonic treadmill is this tricky thing our brains do. When something good happens, we get a boost of happiness. But over time, we get used to it, and that happiness fades back to our normal level. Even worse, getting the same thing again won't bring as much joy as the first time.  
-
+<br>
 
 WHY SHOULD YOU CARE?
 
@@ -145,7 +145,7 @@ Here's the deal: understanding the hedonic treadmill can save you a lot of disap
 Instead, we often find ourselves wanting more, better, bigger. The new Lego figure? Cool for a while, but then you start eyeing the ice cream truck. After that it has to be a whole farm. Bigger, better, more!   
 
 This constant chase can leave you feeling unsatisfied and maybe even a bit unhappy. If you're always focused on the next big thing, you might miss out on enjoying what you have right now.
-
+<br>
  
 BREAKING FREE FROM THE TREADMILL
 
@@ -158,14 +158,14 @@ So, are we doomed to always chase the next big thing? Nope! Here are some tricks
 3. Set goals: Working towards something gives you a sense of purpose and achievement. It's not just about the end result, but the journey too.
 
 4. Help others: Doing something kind for someone else can give you a happiness boost that lasts longer than buying something for yourself.
-
+<br>
 
 THE PLOT TWIST
 
 Here's the funny thing about the hedonic treadmill: it works both ways. Just like we get used to good things, we also adapt to not-so-great situations. Remember that time you thought you'd never get over losing your favorite toy? But you did, right?
 
 This is actually pretty cool because it means that even when life throws you a curveball, you have an amazing ability to bounce back. Your baseline happiness is more resilient than you might think!  
-
+<br>
 
 WHY IT MATTERS
  
@@ -174,7 +174,7 @@ Understanding the hedonic treadmill isn't about giving up on wanting things or h
 So next time you're tempted to think, "I'll be happy when..." remember the hedonic treadmill. True happiness isn't about running faster to get the next thing. It's about learning to enjoy the journey, wherever you are on the path. 
 
 Love, Dad
-
+<br>
   PS: Ok, ok… I’ll confess, the rule of the Hedonic Treadmill doesn’t apply to all things. There is one thing that for me still feels as good as the first time and that is: a hug from you. True story! ;)
 
 
