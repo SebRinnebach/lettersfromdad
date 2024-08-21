@@ -9,6 +9,7 @@ Hi kids,
 Here it is. The first letter of a series of letters that I plan to write to you.
 
 Why am I doing this: 
+
 Over the years I couldn’t help but recognize all sorts of things that I would have loved to know growing up, but weren’t taught in school. 
 At some point I started to take notes every time I understood something that I found interesting or helpful. Initially I never really considered to do anything with them.
 
