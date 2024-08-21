@@ -1,4 +1,6 @@
-![Header](logo_small.png)
+<p align="center">
+  <img src="logo_small.png" alt="Centered Image">
+</p>
 
 <br><br><br>
 
