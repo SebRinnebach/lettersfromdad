@@ -157,7 +157,7 @@ Instead, we often find ourselves wanting more, better, bigger. The new Lego figu
 This constant chase can leave you feeling unsatisfied and maybe even a bit unhappy. If you're always focused on the next big thing, you might miss out on enjoying what you have right now.
 
 <br>
- 
+
 BREAKING FREE FROM THE TREADMILL
 
 So, are we doomed to always chase the next big thing? Nope! Here are some tricks to outsmart that tricky treadmill: 
