@@ -160,7 +160,8 @@ This constant chase can leave you feeling unsatisfied and maybe even a bit unhap
 
 BREAKING FREE FROM THE TREADMILL
 
-So, are we doomed to always chase the next big thing? Nope! Here are some tricks to outsmart that tricky treadmill: 
+So, are we doomed to always chase the next big thing? No! 
+Here are some tricks to outsmart that tricky treadmill: 
 
 1. Appreciate what you have: Take a moment each day to think about something you're grateful for. It could be as simple as your favorite snack or a fun day with friends.
 
