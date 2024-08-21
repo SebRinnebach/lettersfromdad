@@ -45,9 +45,10 @@ WHAT DO YOU REALLY WANT (NO, REALLY!) 
 Hi kids,  
 
 Today I am going to write about “What Do You Really Want? (No, Really!)”.   Reading the title you might think: That’s easy, I want ice cream! 
-But trust me, sometimes it’s easy and sometimes it is trickier to find out what you really want. No, really! 😉 
+But trust me, sometimes it’s easy and sometimes it is trickier to find out what you really want. No, really! ;)
 
 Let me explain:  
+
 
 THE WORLD AND YOU
 
@@ -80,9 +81,13 @@ HOW TO FIGURE IT OUT 
 So, how do you uncover your true desires? Here are some tricks:
 
 1. Write things down. It will help you to think clearly.
+
 2. Pay attention to what excites you. What makes you lose track of time?
+
 3. Notice your daydreams. What do you imagine when your mind wanders?
+
 4. Think about your dreams when you were little. Sometimes our younger selves knew what we really wanted before the world told us otherwise.
+
 5. And maybe most importantly: Try new things! You might discover desires you never knew you had.  
 
 
@@ -99,4 +104,73 @@ It might take some soul-searching, but I promise it's worth it. After all, it's 
 
 Love, Dad 
 
-P.S. If you figure out what you really want is a pet dragon, let me know. We might need to have another talk about reality vs. fantasy! 😄
+P.S. If you figure out what you really want is a pet dragon, let me know. We might need to have another talk about reality vs. fantasy! ;)
+
+
+
+
+
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+
+
+LETTER 02
+
+THE HEDONIC TREADMILL: THE NEVER-ENDING CHASE FOR MORE
+
+
+ Hi kids, 
+
+Today we're going to talk about something called the "hedonic treadmill." I know, it sounds like some fancy exercise equipment, but trust me, it's way more interesting (and way less sweaty)! ;)
+
+
+WHAT'S THIS TREADMILL ALL ABOUT?
+
+Imagine you just got the new shoes you've been begging for. You're over the moon excited, right? But after a few weeks, it doesn't feel as thrilling anymore. You're back to your usual level of happiness. That, my dear kiddos, is the hedonic treadmill in action.
+
+The hedonic treadmill is this tricky thing our brains do. When something good happens, we get a boost of happiness. But over time, we get used to it, and that happiness fades back to our normal level. Even worse, getting the same thing again won't bring as much joy as the first time.  
+
+
+WHY SHOULD YOU CARE?
+
+Here's the deal: understanding the hedonic treadmill can save you a lot of disappointment (and maybe some allowance money too). It's easy to fall into the trap of thinking, "If I just get X, then I'll be happy forever!" But life doesn't work that way.
+Instead, we often find ourselves wanting more, better, bigger. The new Lego figure? Cool for a while, but then you start eyeing the ice cream truck. After that it has to be a whole farm. Bigger, better, more!   
+
+This constant chase can leave you feeling unsatisfied and maybe even a bit unhappy. If you're always focused on the next big thing, you might miss out on enjoying what you have right now.
+
+ 
+BREAKING FREE FROM THE TREADMILL
+
+So, are we doomed to always chase the next big thing? Nope! Here are some tricks to outsmart that tricky treadmill: 
+
+1. Appreciate what you have: Take a moment each day to think about something you're grateful for. It could be as simple as your favorite snack or a fun day with friends.
+
+2. Focus on experiences, not things: Material stuff gets old fast, but memories last. That family camping trip might bring you more lasting joy than a new gadget.
+
+3. Set goals: Working towards something gives you a sense of purpose and achievement. It's not just about the end result, but the journey too.
+
+4. Help others: Doing something kind for someone else can give you a happiness boost that lasts longer than buying something for yourself.
+
+
+THE PLOT TWIST
+
+Here's the funny thing about the hedonic treadmill: it works both ways. Just like we get used to good things, we also adapt to not-so-great situations. Remember that time you thought you'd never get over losing your favorite toy? But you did, right?
+
+This is actually pretty cool because it means that even when life throws you a curveball, you have an amazing ability to bounce back. Your baseline happiness is more resilient than you might think!  
+
+
+WHY IT MATTERS
+ 
+Understanding the hedonic treadmill isn't about giving up on wanting things or having goals. It's about being smarter about what really makes you happy in the long run. It's about finding joy in the everyday stuff, not just the big exciting moments. 
+
+So next time you're tempted to think, "I'll be happy when..." remember the hedonic treadmill. True happiness isn't about running faster to get the next thing. It's about learning to enjoy the journey, wherever you are on the path. 
+
+Love, Dad
+
+  PS: Ok, ok… I’ll confess, the rule of the Hedonic Treadmill doesn’t apply to all things. There is one thing that for me still feels as good as the first time and that is: a hug from you. True story! ;)
+
+
+
+
+
