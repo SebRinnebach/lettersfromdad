@@ -4,6 +4,8 @@
 
 <br><br><br>
 
+LETTER 01
+
 Hi kids, 
 
 Here it is. The first letter of a series of letters that I plan to write to you.
@@ -42,7 +44,7 @@ Dad
 
 
 
-LETTER 01
+LETTER 02
 
 WHAT DO YOU REALLY WANT 
 (NO, REALLY!) 
@@ -133,7 +135,7 @@ P.S. If you figure out what you really want is a pet dragon, let me know. We mig
 <br><br><br>
 
 
-LETTER 02
+LETTER 03
 
 THE HEDONIC TREADMILL: THE NEVER-ENDING CHASE FOR MORE
 
@@ -210,7 +212,7 @@ Love, Dad
 
 
 
-LETTER 03
+LETTER 04
 
 HAPPINESS
 
