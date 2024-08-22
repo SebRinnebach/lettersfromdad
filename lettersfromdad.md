@@ -44,7 +44,8 @@ Dad
 
 LETTER 01
 
-WHAT DO YOU REALLY WANT (NO, REALLY!) 
+WHAT DO YOU REALLY WANT 
+(NO, REALLY!) 
 
 <br>
 
@@ -274,15 +275,11 @@ When you're hanging out with your friends and suddenly realize hours have passed
 
 THE FULL PICTURE OF HAPPINESS
 
-Now, here's something important to remember: while chasing happiness can be great, it's not the end all be all. Like a coin, happiness has another side, and embracing both sides is important.
+Now, here's something important to remember: while chasing happiness can be great, it's not the end all be all. It's not the persuit of happiness, it's the happiness of the persuit.
 
-Here's the thing, kids: even if you follow all the happiness tips you'll come across in your life, you'll still feel sad sometimes. 
-And that's okay! It's part of life. 
-Sadness, frustration, and disappointment are the flip side of joy, satisfaction, and excitement. They help us appreciate the good times even more. 
+It's not about running the fastest on the treadmill or covering the most distance. It's about enjoying your workout, whatever pace you're at. When you feel that treadmill speeding up too much, remind yourself that constantly chasing "more" isn't the answer. Eating too much ice cream and your belly hurts, right?
 
-So, what's the takeaway from all this? Well, happiness isn't about running the fastest on the treadmill or covering the most distance. It's about enjoying your workout, whatever pace you're at. When you feel that treadmill speeding up too much, remind yourself that constantly chasing "more" isn't the answer. Eating too much ice cream and your belly hurts, right?
-
-Instead, try to catch yourself and be in the moment. When the treadmill slows down and you can really enjoy the scenery – that's where the real treasures are!
+Instead, try to catch yourself and be in the moment - that's where the real treasures are!
  
 Love, Dad
 
