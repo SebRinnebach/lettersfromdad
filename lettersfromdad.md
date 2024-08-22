@@ -27,7 +27,8 @@ But when you showed up everything changed.
  
  Frankly, I don’t think that you will follow or apply most of the advice and that is ok.  Life is about making your own mistakes and learning from them. But if even only 5% of this is going to be useful to you, it is still a win. :)
 
-I will try and keep the letters rather short so that you can read them quickly. My goal is to try to get to behind the why of things and give actionable advice, while not being boring. You might think: Good luck with that - but hey, it’s worth a try.
+I will try and keep the letters rather short so that you can read them quickly. My goal is to try to get to behind the why of things and give actionable advice, while not being boring. 
+You might think: Good luck with that - but hey, it’s worth a try.
  I’ll write them in a somewhat organized manner, but it still should work to jump back and forth as they won’t build too much onto each other. 
 
 A good age to start reading these might be when you enter puberty, so the age when you prefer reading from me rather than talking to me anyways (lol). 
