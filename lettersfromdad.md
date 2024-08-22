@@ -24,6 +24,7 @@ But when you showed up everything changed.
 
 
  As you are still young and it’s uncertain if I can share these lessons in person when the time has come, I’ve decided to write them down.
+ 
  Frankly, I don’t think that you will follow or apply most of the advice and that is ok.  Life is about making your own mistakes and learning from them. But if even only 5% of this is going to be useful to you, it is still a win. :)
 
 I will try and keep the letters rather short so that you can read them quickly. My goal is to try to get to behind the why of things and give actionable advice, while not being boring. You might think: Good luck with that - but hey, it’s worth a try.
