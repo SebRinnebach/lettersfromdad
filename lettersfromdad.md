@@ -35,7 +35,7 @@ You might think: Good luck with that - but hey, it’s worth a try.
 A good age to start reading these might be when you enter puberty, so the age when you prefer reading from me rather than talking to me anyways (lol). 
 
 Alright, let’s get started before I risk losing your attention due to even more dad jokes. 
-Off to letter number 01.
+Off to letter number 02.
 
 Love you, 
 Dad
