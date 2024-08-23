@@ -109,7 +109,7 @@ So, how do you uncover your true desires? Here are some tricks:
 
 4. Think about your dreams when you were little. Sometimes our younger selves knew what we really wanted before the world told us otherwise.
 
-5. And maybe most importantly: Try new things! You might discover desires you never knew you had.
+5. Explore your curiosity! Follow your interests, even if they seem unusual. You might uncover passions you never knew existed.
    
 <br>
 
@@ -340,7 +340,7 @@ USING CHANGE TO YOUR ADVANTAGE
 
 Now that you know about your brain's change detector, you can use this knowledge. Here are some ideas:
 
-1. Try new things: New experiences give your brain positive changes to notice. It might feel a bit scary sometimes, but it's how we grow.
+1. Embrace change: Seek out new experiences, even small ones. Your brain thrives on novelty, and while it might feel uncomfortable at first, it's how we learn and grow.
 
 2. Notice the little things: Pay attention to small positive changes in your day. It's like giving your brain little presents.
 
@@ -398,7 +398,7 @@ Now, here's where it gets really interesting. Imagine what happens when people w
 
 This clash of "normals" can lead to misunderstandings. For example, in some cultures, it's normal to slurp your soup loudly to show you're enjoying it. In others, that would be considered super rude. Neither way is right or wrong – they're just different normals.
 
-But here's the cool part: when you understand that everyone has their own "normal," you can start asking questions and learning about others. It's like being a detective, uncovering the mysteries of different ways of life. And that, my dear Watson, is how you become a master of getting along with all sorts of people!
+But here's the cool part: when you understand that everyone has their own "normal," you can start asking questions and learning about others. It's like being a detective, uncovering the mysteries of different ways of life. That way you become a master of getting along with all sorts of people!
 
 NORMAL AND HAPPINESS: AN UNEXPECTED PAIR
 
@@ -412,7 +412,7 @@ Now that you know "normal" is just something your brain invented, you can use th
 
 1. Be a "normal" detective: When you meet someone new, try to uncover their "normal." Ask them about their daily life, traditions, or what they do for fun. You might discover some really cool stuff!
 
-2. Expand your "normal" horizons: Try new things, even if they seem weird at first. You're basically giving your brain new "normal" options to choose from.
+2. Challenge your 'normal': Step outside your comfort zone and experience different ways of living or thinking. 
 
 3. Play the "gratitude game": Once a day, imagine how your life could be tougher by losing something that you like. Suddenly, your normal life might seem pretty great!
 
