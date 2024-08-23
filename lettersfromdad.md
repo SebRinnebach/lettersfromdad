@@ -114,7 +114,8 @@ So, how do you uncover your true desires? Here are some tricks:
 
 BUT WAIT, IS IT REALLY THAT SIMPLE?
 
-Now, you might be thinking, "Dad, isn't it selfish to focus so much on what I want?" That's a great question! It's true that we shouldn't only think about ourselves. But understanding what you truly want can actually help you contribute more to others. When you know yourself better, you can make choices that make you happy AND help those around you. It's not about being selfish—it's about being your best self!
+Now, you might be thinking, "Dad, isn't it selfish to focus so much on what I want?" 
+That's a great question! It's true that we shouldn't only think about ourselves. But understanding what you truly want can actually help you contribute more to others. When you know yourself better, you can make choices that make you happy AND help those around you. It's not about being selfish—it's about being your best self!
 
 <br>
 
