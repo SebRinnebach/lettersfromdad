@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="logo_small.png" alt="Centered Image">
+  <img src="logo_small.png" alt="Letters from Dad logo">
 </p>
 
 <br><br><br>
@@ -40,7 +40,6 @@ Off to letter number 02.
 Love you, 
 Dad
 
-
 <br><br><br>
 
 
@@ -48,7 +47,6 @@ Dad
 
 
 <br><br><br>
-
 
 
 LETTER 02
@@ -136,9 +134,7 @@ Love, Dad
 
 P.S. If you figure out what you really want is a pet dragon, let me know. We might need to have another talk about reality vs. fantasy! ;)
 
-
 <br><br><br>
-
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
@@ -219,17 +215,13 @@ Love, Dad
 
 PS: Ok, ok… I'll confess, the rule of the Hedonic Treadmill doesn't apply to all things. There is one thing that for me still feels as good as the first time and that is: a hug from you. True story! ;)
 
-  
-
 <br><br><br>
-
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
 <br><br><br>
-
 
 
 LETTER 04
@@ -322,16 +314,13 @@ Love, Dad
  
 P.S. You know what makes my happiness meter go off the charts? You reading this line, because it means that you didn't stop reading these letters yet. I hope you keep going!
 
-
 <br><br><br>
-
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 
 <br><br><br>
-
 
 
 LETTER 05
@@ -412,9 +401,12 @@ P.S. Speaking of change, I changed my mind about the pet dragon. But maybe we ca
 
 <br><br><br>
 
+
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------
 
+
 <br><br><br>
+
 
 LETTER 06
 
@@ -505,8 +497,3 @@ Love, Your completely not normal Dad
 <br>
 
 PS: Be honest, you didn't expect normal being so interesting, did you? I hope you're fully awake again by now and able to tackle the next letter…
-
-
-
-
-

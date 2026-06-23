@@ -1,0 +1,4 @@
+*.md text eol=lf diff=markdown
+*.mjs text eol=lf
+*.json text eol=lf
+*.png binary

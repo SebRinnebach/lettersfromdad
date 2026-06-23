@@ -1,0 +1,10 @@
+{
+  "name": "letters-from-dad",
+  "version": "0.1.0",
+  "private": true,
+  "description": "A Markdown writing repository for Letters from Dad.",
+  "scripts": {
+    "build": "node scripts/build-manuscript.mjs",
+    "check": "node scripts/build-manuscript.mjs --check"
+  }
+}
